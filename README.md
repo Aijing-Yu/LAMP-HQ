@@ -1,5 +1,5 @@
 # LAMP-HQ
 
-Contact me to acheive the LAMP-HQ dataset!↓
+Contact me to discuss the details of LAMP-HQ!↓
 
 aijing.yu@cripac.ia.ac.cn
